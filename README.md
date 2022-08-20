@@ -1,4 +1,4 @@
-Engineering student. Rustacean :crab:
+Engineering student. Rustacean :crab:. UniUD FSAE member.
 
 francescomarcato1@gmail.com
 
