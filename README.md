@@ -1,4 +1,4 @@
-Engineering student.
+Engineering student. Rustacean :crab:
 
 francescomarcato1@gmail.com
 
