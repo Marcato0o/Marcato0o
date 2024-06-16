@@ -1,5 +1,5 @@
 Engineering student. 
-Rustacean:crab:. 
+Rustacean
 UniUd fsae member.
 
 francescomarcato1@gmail.com
